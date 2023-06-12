@@ -20,7 +20,7 @@
  <a href="https://github.com/teamxfire">DOWNLOAD NOW</a> 
 
 
- - [TEAM X FIRE](https://t.me/TXF2022) 
+[TEAM X FIRE TELEGRAM](https://t.me/TXF2022) 
 
  <a href="https://www.facebook.com/team.x.fire.official">TEAM X FIRE SOCIAL </a> 
 
