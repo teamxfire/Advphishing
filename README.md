@@ -26,14 +26,13 @@
 
   
 
+ #
  ## OUR TELEGRAM CHANNEL
-
-  
+ 
+ ## OUR TELEGRAM CHANNEL
 
  - [TEAM X FIRE](https://t.me/TXF2022) 
 
-## NEED KEY VERIFY FOR CONTACT 
- <a href="https://www.facebook.com/team.x.fire.official">FACEBOOK PAGE</a> 
 
   
   
@@ -69,7 +68,7 @@
 
 
   
-h
+
   
 
   
